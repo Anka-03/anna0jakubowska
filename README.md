@@ -1,0 +1,2 @@
+- 👋 Hi, I’m anka
+- 🌱 I’m currently learning programing
